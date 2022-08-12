@@ -24,7 +24,7 @@ const generate = async () => {
 
   if (!quote) return;
 
-  fs.writeFileSync("README.md", `_**${quote}**_\n\n${author}`);
+  fs.writeFileSync("README.md", `_**${quote}**_\n\n${author} <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=vuduynhiennn&theme=tokyonight&layout=&langs_count=5">`);
 };
 
 generate();
