@@ -3,7 +3,7 @@ name: quote_generator
 on:
   workflow_dispatch:
   schedule:
-  - cron: "0 0 * * *"
+  - cron: "26 5 * * *"
 
 jobs:
   build:
