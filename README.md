@@ -1,5 +1,5 @@
-_**A man who has no imagination has no wings.**_
+_**We don't have to do all of it alone. We were never meant to.**_
 
-Mohamad Ali _
+Brene Brown _
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=vuduynhiennn&layout=compact)](https://github.com/vuduynhiennn)
