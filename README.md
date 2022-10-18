@@ -1,3 +1,3 @@
-_**Even if you're on the right track, you'll get run over if you just sit there..**_
+_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
 
-Will Rogers
+Phil Grimshaw
