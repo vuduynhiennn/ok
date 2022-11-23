@@ -1,3 +1,3 @@
-_**I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better. I think that's the single best piece of advice: constantly think about how you could be doing things better and questioning yourself.**_
+_**Do the best you can until you know better. Then when you know better, do better.**_
 
-Elon Musk
+Maya Angelou
