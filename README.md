@@ -1,3 +1,3 @@
-_**What you do speaks so loudly that I cannot hear what you say.**_
+_**From now on we live in a world where man has walked on the Moon. It's not a miracle; we just decided to go.**_
 
-Ralph Waldo Emerson
+Tom Hanks
