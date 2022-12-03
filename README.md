@@ -1,3 +1,3 @@
-_**When you recover or discover something that nourishes your soul and brings joy, care enough about yourself to make room for it in your life.**_
+_**Core passions and aspirations should be consistent and in sync.**_
 
-Jean Shinoda Bolen
+Lorii Myers
