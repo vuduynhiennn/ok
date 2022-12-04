@@ -1,3 +1,3 @@
-_**Core passions and aspirations should be consistent and in sync.**_
+_**You will never win if you never begin.**_
 
-Lorii Myers
+Helen Rowland
