@@ -1,3 +1,3 @@
-_**Named must your fear be before banish it you can.**_
+_**Let go of who you think you're supposed to be; embrace who you are.**_
 
-Yoda
+Brene Brown
