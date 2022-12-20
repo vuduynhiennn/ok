@@ -1,3 +1,3 @@
-_**Where there is ruin, there is hope for a treasure.**_
+_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure-giving up does.**_
 
-Rumi
+Lorii Myers
