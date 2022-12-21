@@ -1,3 +1,3 @@
-_**Keep a positive mind. Remember, a failed attempt doesn't make you a failure-giving up does.**_
+_**Failure is the condiment that gives success its flavor.**_
 
-Lorii Myers
+Truman Capote
