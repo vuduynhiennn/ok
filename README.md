@@ -1,3 +1,3 @@
-_**Let our advance worrying become advance thinking and planning.**_
+_**Great things are done by a series of small things brought together.**_
 
-Winston Churchill
+Vincent Van Gogh
