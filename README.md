@@ -1,3 +1,3 @@
-_**Sometimes you climb out of bed in the morning and you think, I'm not going to make it, but you laugh inside - remembering all the times you've felt that way.**_
+_**Winning is nice if you don't lose your integrity in the process.**_
 
-Charles Bukowski
+Arnold Horshak
