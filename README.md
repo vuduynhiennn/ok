@@ -1,3 +1,3 @@
-_**Regardless of how you feel inside, always try to look like a winner. Even if you are behind, a sustained look of control and confidence can give you a mental edge that results in victory.**_
+_**If I work as hard as I can, I wonder how much I can do in a day?**_
 
-Arthur Ashe
+Ezra Taft Benson
