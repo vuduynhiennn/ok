@@ -1,3 +1,3 @@
-_**If I work as hard as I can, I wonder how much I can do in a day?**_
+_**The real winners in life are the people who look at every situation with an expectation that they can make it work or make it better**_
 
-Ezra Taft Benson
+Barbara Pletcher
