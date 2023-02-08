@@ -1,3 +1,3 @@
-_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
+_**Somewhere between the bottom of the climb and the summit is the answer to the mystery why we climb.**_
 
-Veronica A. Shoffstall
+Greg Child
