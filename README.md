@@ -1,3 +1,3 @@
-_**Beyond a certain point there is no return. This point has to be reached.**_
+_**Positive anything is better than negative thinking.**_
 
-Franz Kafka
+Elbert Hubbard
