@@ -1,3 +1,3 @@
-_**Your success will not be determined by your gender or your ethnicity, but only on the scope of your dreams and your hard work to achieve them.**_
+_**Do the best you can until you know better. Then when you know better, do better.**_
 
-Zaha Hadid
+Maya Angelou
